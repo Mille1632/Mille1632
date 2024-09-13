@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Mille1632
 - 👀 I’m interested in Programming
-- 🌱 I’m currently learning Coding
+- 🌱 I’m currently learning How to code
 - 💞️ I’m looking to collaborate on with the community
 - 📫 How to reach me ...
 - 😄 Pronouns: I Don't have one
