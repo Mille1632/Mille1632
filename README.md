@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Mille1632
+- 👋 Hi, I’m @Gooseymille10
 - 👀 I’m interested in Programming
 - 🌱 I’m currently learning How to code
 - 💞️ I’m looking to collaborate on with the community
